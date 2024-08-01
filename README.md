@@ -8,3 +8,7 @@ I'm Pablo, nice to meet you! Here's something about me.
 🔭 In my spare time, I'm working on a math teaching app. Can't wait to share more about it soon!
 
 ✏️ Feel free to reach out if you want to chat or collaborate on something cool!
+
+👀 Check out below some of my recent projects
+
+⬇️⬇️⬇️
